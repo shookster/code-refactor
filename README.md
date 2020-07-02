@@ -1,1 +1,1 @@
-# very-new-portfolio
+Welcome to Ethan Shook's Portfolio.
